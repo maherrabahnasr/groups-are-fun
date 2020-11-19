@@ -1,4 +1,4 @@
 # groups-are-fun
 this is how groups can break everything.
 
-GO BLUE!!
+I've never even heard of UCF!
